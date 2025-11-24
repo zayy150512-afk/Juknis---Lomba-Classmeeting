@@ -1,0 +1,1 @@
+# Juknis---Lomba-Classmeeting
